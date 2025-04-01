@@ -1,7 +1,7 @@
 # About me 
 
 ## contribution 
-OS X logic DAW work   https://www.youtube.com/@honkdave8738/playlists
+OS X logic DAW work http://var.null.com
 
 CCNA and LPIC ipv4/6 WWW base
 
